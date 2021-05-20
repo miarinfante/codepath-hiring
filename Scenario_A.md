@@ -6,6 +6,7 @@ Any participation on the session for less than half of its duration will be mark
 
 
 
+
 All the best,
 
 CodePath.org Team
